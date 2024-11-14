@@ -1,10 +1,10 @@
 # MonkeyType Hack/Script
 
-*** Is your life miserable? ***
+***Is your life miserable?***
 
-*** Are you tired of getting low wpm? ***
+***Are you tired of getting low wpm?***
 
-*** Is your friend making fun of you? ***
+***Is your friend making fun of you?***
 
 ### Well tension no more use our script and have a high wpm (Also adjust able)
 
